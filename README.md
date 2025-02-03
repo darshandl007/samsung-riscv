@@ -10,3 +10,8 @@
 Task 3 
 #[Task 3.pdf](https://github.com/user-attachments/files/18455703/Task.3.pdf)
 #Task 4 
+![1000174591](https://github.com/user-attachments/assets/bee45e66-53a1-4ced-bdb7-3df719e73229)
+![1000174588](https://github.com/user-attachments/assets/d77d6ae3-7903-41a3-b548-c1b4b2f1d7f8)
+![1000174585](https://github.com/user-attachments/assets/4af615c1-c43b-4a35-854f-a8cff89aadf5)
+![1000174582](https://github.com/user-attachments/assets/634a519e-4532-4684-a208-74fdcd762c63)
+![1000174579](https://github.com/user-attachments/assets/9474048e-4dc9-41ed-9dae-3fea461d724f)
